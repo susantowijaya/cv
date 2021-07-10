@@ -3,7 +3,7 @@ Tenacity & Transformation 2019 intel award receiver, creative, goal oriented sal
 
 [Email](mailto:susanto.huang@gmail.com) | [Linkedin](http://linkedin.com/in/stow)
 
-### :office_worker: Professional Experience: 
+### :man_technologist: Professional Experience: 
 
 **Industry Technical Specialist** @ [Intel Corporation](http://www.intel.co.id)  (July 2019 to Present)
 * Technical Sales of 3 Account Executive in Indonesia with vertical industry Telecommunication, FSI (Banks), Manufacturing, Government 
