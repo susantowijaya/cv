@@ -6,18 +6,18 @@ _Tenacity & Transformation 2019 intel award receiver, creative, goal oriented sa
 ## 👩🏼‍💻 Professional Experience: 
 
 **Industry Technical Specialist** @ [Intel Corporation](http://www.intel.co.id)  _(July 2019 to Present)_<br>
-- Technical Sales of 3 Account Executive in Indonesia with vertical industry Telecommunication, FSI (Banks), Manufacturing, Government 
+- Technical Sales in Indonesia with vertical industry Telecommunication, FSI (Banks), Manufacturing, Government 
 - ITS Shared Resource across Vietnam, Thailand and Philippines
-- Additional responsibility including as Intel Cloud Affinity Service Champion
+- Intel Cloud Affinity Service Champion
 <br><br>
 
 **Field Sales Engineer** @ [Intel Corporation](http://www.intel.co.id)  _(Dec 2016 to Feb 2019)_<br>
-- Manage Intel DIY, LOEM, Branded Business in Indonesia. Extended Support FSI Account in Malaysia (Maybank) and Thailand (Bangkok Bank & Siam Bank) 
+- Manage Intel DIY, LOEM, Branded Business in Indonesia. Extended Support FSI Account in Malaysia and Thailand
 - Recommends the most suitable products/ service, identifies features and benefits, overcome customers objections, and closes sale and prepares appropriate documentation. Attempts to cross-sell or up-sell each account and refers to other parts of the sales force as appropriate.  
-- Quarterly visit, execute webinar/ccc, onsite event, manage country channel representative (11 peoples), conduct weekly download to CR.
+- Quarterly visit, execute webinar/ccc, onsite event, manage country channel representative, conduct weekly download to CR.
 <br><br> 
 
-**Territory Sales Manage** @ Oracle Corporation(http://www.oracle.com) (Nov 2015 - Jul 2016)
+**Territory Sales Manage** @ [Oracle Corporation](http://www.oracle.com) (Nov 2015 - Jul 2016)
 - Manage assigned Territory in Indonesia & Malaysia sell Oracle Database Appliance
 - Execute business and territory plans which focus on Oracle Business activities 
 - Manage a commercial relationship with the customer and maintain customer data through the identification and evaluation of - customer’s product requirement 
