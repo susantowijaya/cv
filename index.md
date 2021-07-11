@@ -47,3 +47,7 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 - [AWS Certified Cloud Practitioner](https://www.credly.com/badges/a51d33ad-3d3b-470e-b8f9-b1290f102e4a/linked_in_profile)<br>
 - [AWS Certified Solutions Architect - Associate](https://www.credly.com/badges/d802743a-dff3-4f8d-ad5c-5d37fb27ae0a?source=linked_in_profile)<br>
   
+**Intel Corporation:**
+- [AI Solutions](https://www.credly.com/badges/e5f46faa-5121-4593-9f54-d0bc94e007d1/linked_in_profile)<br>
+- [Cloud Fundamentals](https://www.credly.com/badges/cc80780a-47b4-43d9-89a0-d8077cef8ca8?source=linked_in_profile)<br>
+- IoT Sales Champion Bronze Level<br>
