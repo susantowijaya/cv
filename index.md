@@ -35,4 +35,4 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 <br><br>
 
 **Bachelor of Computer Science** in Computerized Accounting Systems<br>
-[Bina Nusantara University](http://www.binus.ac.id) - Beloit, Wisconsin, USA _(2011 - 2015)_
+[Bina Nusantara University](http://www.binus.ac.id) - Jakarta, Indonesia _(1999 - 2003)_
