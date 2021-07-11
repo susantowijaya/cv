@@ -1,7 +1,7 @@
 # Susanto Wijaya
 _Goal oriented sales person and skilled at understanding customer’s underlying business needs and translating them into IT requirements, educate and energize an organization's partners to help them grow and find success_ <br>
 
-[Email](mailto:#) | [Linkedin](http://linkedin.com/in/stow)
+[Email](mailto:susanto.huang@gmail.com) | [Linkedin](http://linkedin.com/in/stow)
 
 ## 👩🏼‍💻 Professional Experience: 
 
