@@ -17,22 +17,25 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 - Quarterly visit, onsite event, manage country channel representative
 <br><br> 
 
-**Territory Sales Manage** @ [Oracle Corporation](http://www.oracle.com) (Nov 2015 - Jul 2016)
+**Territory Sales Manage** @ [Oracle Corporation](http://www.oracle.com) _(Nov 2015 - Jul 2016)_<br>
 - Manage assigned Territory in Indonesia & Malaysia
 - Execute business and territory plans which focus on Business activities 
 - Manage a commercial relationship with the customer
 <br><br>
 
-**Inside Sales Account Manager** @ [Dell, Inc.](http://www.dell.com) (Aug 2012 - Oct 2015) 
+**Inside Sales Account Manager** @ [Dell, Inc.](http://www.dell.com) _(Aug 2012 - Oct 2015)_<br>
 - Manage Public Sector and system integrator, partner, ISV of Indonesia region
 - Responsible for ensuring daily and weekly update of the outlook plan, sales funnel, and call plan. 
 - Develop & maintain good business relationship with assigned customers 
 - Work closely with outside sales representative & distributors to acquire new opportunities
 
-**Enterprise Technical Support Specialist** @ [Dell, Inc.](http://www.dell.com) (May 2008 - July 2012)  
-**IT Coordinator** @ [CENTURY 21, Ciputra Group](http://www.century21.co.id) (Aug 2005 - Apr 2008) 
-**IT Staff** @ [Olagafood Sukses Mandiri](http://www.olagafood.co.id) (May 2002 - July 2005) 
+**Enterprise Technical Support Specialist** @ [Dell, Inc.](http://www.dell.com) _(May 2008 - July 2012)_<br>  
+**IT Coordinator** @ [CENTURY 21, Ciputra Group](http://www.century21.co.id) _(Aug 2005 - Apr 2008)_<br> 
+**IT Staff** @ [Olagafood Sukses Mandiri](http://www.olagafood.co.id) _(May 2002 - July 2005)_<br> 
 <br><br>
 
+## 👩🏼‍🎓 Education
 **Bachelor of Computer Science** in Computerized Accounting Systems<br>
 [Bina Nusantara University](http://www.binus.ac.id) - Jakarta, Indonesia _(1999 - 2003)_
+
+
