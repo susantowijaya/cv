@@ -1,5 +1,5 @@
 # Susanto Wijaya
-_Skilled and creative salesperson at understanding customer’s underlying business needs and translating them into IT requirements, educate and energize an organization's partners to help them grow and find success_ <br>
+_The skilled and creative salesperson at understanding customer’s underlying business needs and translating them into IT requirements, educate and energize an organization's partners to help them grow and find success_ <br>
 
 [Email](mailto:susanto.huang@gmail.com) | [Linkedin](http://linkedin.com/in/stow)
 
