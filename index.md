@@ -28,11 +28,13 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 - Responsible for ensuring daily and weekly update of the outlook plan, sales funnel, and call plan. 
 - Develop & maintain good business relationship with assigned customers 
 - Work closely with outside sales representative & distributors to acquire new opportunities
+<br><br>
 
-**Enterprise Technical Support Specialist** @ [Dell, Inc.](http://www.dell.com) _(May 2008 - July 2012)_<br>  
+**Enterprise Technical Support Specialist** @ [Dell, Inc.](http://www.dell.com) _(May 2008 - July 2012)_<br> 
 **IT Coordinator** @ [CENTURY 21, Ciputra Group](http://www.century21.co.id) _(Aug 2005 - Apr 2008)_<br> 
 **IT Staff** @ [Olagafood Sukses Mandiri](http://www.olagafood.co.id) _(May 2002 - July 2005)_<br> 
 <br><br>
+
 ## 👨‍🎓 Education
 **Bachelor of Computer Science** in Computerized Accounting Systems<br>
 [Bina Nusantara University](http://www.binus.ac.id) - Jakarta, Indonesia _(1999 - 2003)_
