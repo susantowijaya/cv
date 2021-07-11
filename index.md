@@ -12,7 +12,7 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 <br><br>
 
 **Field Sales Engineer** @ [Intel Corporation](http://www.intel.co.id)  _(Dec 2016 to Feb 2019)_<br>
-- Manage Channel Partners in Indonesia. 
+- Manage Channel Partners in Indonesia
 - Recommends the most suitable products/ service, identifies features and benefits and closes sale
 - Quarterly visit, onsite event, manage country channel representative
 <br><br> 
@@ -51,3 +51,6 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 - [AI Solutions](https://www.credly.com/badges/e5f46faa-5121-4593-9f54-d0bc94e007d1/linked_in_profile)<br>
 - [Cloud Fundamentals](https://www.credly.com/badges/cc80780a-47b4-43d9-89a0-d8077cef8ca8?source=linked_in_profile)<br>
 - IoT Sales Champion Bronze Level<br>
+
+**CompTIA**
+- [CompTIA Linux+ Certification](https://www.credly.com/badges/1c8aedd1-7dcb-47c7-a5cc-a6ec41af7bee/linked_in_profile)<br>
