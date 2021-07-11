@@ -38,4 +38,10 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 **Bachelor of Computer Science** in Computerized Accounting Systems<br>
 [Bina Nusantara University](http://www.binus.ac.id) - Jakarta, Indonesia _(1999 - 2003)_
 
-
+## 📛 Professional Certificates/ Digital Badges
+**Microsoft:**
+- [Azure Fundamentals](https://www.credly.com/badges/377df704-6e6d-404a-a225-88363eb1a77d?source=linked_in_profile)<br>
+**Amazon Web Services:**
+- [AWS Certified Cloud Practitioner](https://www.credly.com/badges/a51d33ad-3d3b-470e-b8f9-b1290f102e4a/linked_in_profile)<br>
+- [AWS Certified Solutions Architect - Associate](https://www.credly.com/badges/d802743a-dff3-4f8d-ad5c-5d37fb27ae0a?source=linked_in_profile)<br>
+  
