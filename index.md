@@ -52,5 +52,5 @@ _The skilled and creative salesperson at understanding customer’s underlying b
 - [Cloud Fundamentals](https://www.credly.com/badges/cc80780a-47b4-43d9-89a0-d8077cef8ca8?source=linked_in_profile)<br>
 - IoT Sales Champion Bronze Level<br>
 
-**CompTIA**
+**CompTIA:**
 - [CompTIA Linux+ Certification](https://www.credly.com/badges/1c8aedd1-7dcb-47c7-a5cc-a6ec41af7bee/linked_in_profile)<br>
