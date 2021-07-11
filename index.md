@@ -13,18 +13,18 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 
 **Field Sales Engineer** @ [Intel Corporation](http://www.intel.co.id)  _(Dec 2016 to Feb 2019)_<br>
 - Manage Channel Partners in Indonesia. 
-- Recommends the most suitable products/ service, identifies features and benefits, overcome customers objections, and closes sale
-- Quarterly visit, execute webinar/ccc, onsite event, manage country channel representative, conduct weekly download to CR.
+- Recommends the most suitable products/ service, identifies features and benefits and closes sale
+- Quarterly visit, onsite event, manage country channel representative
 <br><br> 
 
 **Territory Sales Manage** @ [Oracle Corporation](http://www.oracle.com) (Nov 2015 - Jul 2016)
 - Manage assigned Territory in Indonesia & Malaysia sell Oracle Database Appliance
-- Execute business and territory plans which focus on Oracle Business activities 
-- Manage a commercial relationship with the customer and maintain customer data through the identification and evaluation of - customer’s product requirement 
+- Execute business and territory plans which focus on Business activities 
+- Manage a commercial relationship with the customer
 <br><br>
 
 **Inside Sales Account Manager** @ Dell, Inc.(http://www.dell.com) (Aug 2012 - Oct 2015) 
 - Manage Public Sector and system integrator, partner, ISV of Indonesia region
 - Responsible for ensuring daily and weekly update of the outlook plan, sales funnel, and call plan. 
-- Develop & maintain good business relationship with assigned customers and Dell distributors to enhance positive customer experience. 
-- Work closely with outside sales representative & distributors to acquire new opportunities, and to develop and retain existing customers by providing solutions to yield win-win results for Dell, distributor & customer. 
+- Develop & maintain good business relationship with assigned customers 
+- Work closely with outside sales representative & distributors to acquire new opportunities
