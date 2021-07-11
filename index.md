@@ -23,7 +23,7 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 - Manage a commercial relationship with the customer
 <br><br>
 
-**Inside Sales Account Manager** @ Dell, Inc.(http://www.dell.com) (Aug 2012 - Oct 2015) 
+**Inside Sales Account Manager** @ [Dell, Inc.](http://www.dell.com) (Aug 2012 - Oct 2015) 
 - Manage Public Sector and system integrator, partner, ISV of Indonesia region
 - Responsible for ensuring daily and weekly update of the outlook plan, sales funnel, and call plan. 
 - Develop & maintain good business relationship with assigned customers 
