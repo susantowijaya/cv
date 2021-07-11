@@ -18,7 +18,7 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 <br><br> 
 
 **Territory Sales Manage** @ [Oracle Corporation](http://www.oracle.com) (Nov 2015 - Jul 2016)
-- Manage assigned Territory in Indonesia & Malaysia sell Oracle Database Appliance
+- Manage assigned Territory in Indonesia & Malaysia
 - Execute business and territory plans which focus on Business activities 
 - Manage a commercial relationship with the customer
 <br><br>
