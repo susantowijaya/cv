@@ -31,4 +31,8 @@ _Goal oriented sales person and skilled at understanding customer’s underlying
 
 **Enterprise Technical Support Specialist** @ [Dell, Inc.](http://www.dell.com) (May 2008 - July 2012)  
 **IT Coordinator** @ [CENTURY 21, Ciputra Group](http://www.century21.co.id) (Aug 2005 - Apr 2008) 
-**IT Staff** @ [Olagafood Sukses Mandiri](https://www.olagafood.co.id) (May 2002 - July 2005) 
+**IT Staff** @ [Olagafood Sukses Mandiri](http://www.olagafood.co.id) (May 2002 - July 2005) 
+<br><br>
+
+**Bachelor of Computer Science** in Computerized Accounting Systems<br>
+[Bina Nusantara University](http://www.binus.ac.id) - Beloit, Wisconsin, USA _(2011 - 2015)_
