@@ -17,7 +17,7 @@ _The skilled and creative salesperson at understanding customer’s underlying b
 - Quarterly visit, onsite event, manage country channel representative
 <br><br> 
 
-**Territory Sales Manage** @ [Oracle Corporation](http://www.oracle.com) _(Nov 2015 - Jul 2016)_<br>
+**Territory Sales Manager** @ [Oracle Corporation](http://www.oracle.com) _(Nov 2015 - Jul 2016)_<br>
 - Manage assigned Territory in Indonesia & Malaysia
 - Execute business and territory plans which focus on Business activities 
 - Manage a commercial relationship with the customer
