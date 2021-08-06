@@ -11,6 +11,12 @@ _The skilled and creative salesperson at understanding customer’s underlying b
 - Cloud Affinity Service Champion
 <br><br>
 
+**Storage Sales Specialist** @ [IBM](http://www.ibm.com)  _(March 2019 to June 2019)_<br>
+- Technical Sales in Indonesia
+- ITS Shared Resource
+- Cloud Affinity Service Champion
+<br><br>
+
 **Field Sales Engineer** @ [Intel Corporation](http://www.intel.co.id)  _(Dec 2016 to Feb 2019)_<br>
 - Manage Channel Partners in Indonesia
 - Recommends the most suitable products/ service, identifies features and benefits and closes sale
