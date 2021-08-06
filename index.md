@@ -12,7 +12,7 @@ _The skilled and creative salesperson at understanding customer’s underlying b
 <br><br>
 
 **Storage Sales Specialist** @ [IBM](http://www.ibm.com)  _(March 2019 to June 2019)_<br>
-- Storage Solution Product Specialist, work together with client reps to sell Storage (Mainframe & x86) and Manage Top Banking, Conglomerate, Manufacturing and Cross Industry 
+- Storage Solution Product Specialist, work together with client reps to sell Storage (Mainframe & x86) in Banking, Conglomerate, Manufacturing and Cross Industry 
 <br><br>
 
 **Field Sales Engineer** @ [Intel Corporation](http://www.intel.co.id)  _(Dec 2016 to Feb 2019)_<br>
